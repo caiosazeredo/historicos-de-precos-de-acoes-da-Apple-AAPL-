@@ -1,0 +1,1 @@
+# historicos-de-precos-de-acoes-da-Apple-AAPL-
